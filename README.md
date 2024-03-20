@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... IIt Jee ,crciket
 - 🌱 I’m currently learning ...PCM
 - 💞️ I’m looking to collaborate on ...coding
-- 📫 How to reach me ...onlyforstudy9191@gmail.com
+- 📫 How to reach me  onlyforstudy9191@gmail.com
 - 😄 Pronouns: ...He
 - ⚡ Fun fact: ...Blender Blends 😄😄😄
 - I didn't know anthing about github so if you have time help me to learn how is thi beneficial
